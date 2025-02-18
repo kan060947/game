@@ -3,4 +3,4 @@
 
 
 kkk
-https://kan060947.github.io/game/kkk/k&y
+https://kan060947.github.io/game/kkk
